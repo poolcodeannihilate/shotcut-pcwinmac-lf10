@@ -1,4 +1,4 @@
-# 
+# Professionnel Shotcut filtres pour Mac OS | Automatique Shotcut filtres pour PC Windows. Avec sampleur et amélioration vocale — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
